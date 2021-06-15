@@ -1,0 +1,3 @@
+In a large pot, bring 6 quarts of salted water to a boil over high heat. Add the rigatoni and cook until al dente, 8 to 10 minutes.
+Meanwhile, add the cream cheese, milk, mayonnaise, garlic powder, onion powder and red pepper flakes to a 12-inch high-sided saute pan over medium heat. Cook until a thick sauce forms, 5 to 6 minutes.
+When ready, drain the pasta and add it directly to the saute pan along with the artichokes, spinach and white wine. Season with salt and pepper, stir, and continue cooking until all the ingredients are hot, 1 to 2 minutes more. Stir in the Parmesan, then transfer to a serving platter and garnish with chopped parsley.
